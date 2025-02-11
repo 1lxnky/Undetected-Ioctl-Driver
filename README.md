@@ -5,6 +5,6 @@ I'm selling fully undetected and cheap sources (external/internal cheats, kernel
 DM me in discord to get more information - my username: l1nky1337
 
 # Discord
-You can find Fully Undetected Fortnite Cheat with this driver in my [Discord Server](https://discord.gg/YzpCypQyNw).
+You can find Fully Undetected Fortnite Cheat with this driver in my [Discord Server](https://discord.gg/aJShJrT5Dp).
 
-Join my [discord server](https://discord.gg/YzpCypQyNw) to get vcxproj files for this source.
+Join my [discord server](https://discord.gg/aJShJrT5Dp) to get vcxproj files for this source.
